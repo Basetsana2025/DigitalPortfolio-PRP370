@@ -4,6 +4,7 @@
 ### 📝 Evidence
 ![aws](https://github.com/user-attachments/assets/ecade23e-a96f-4865-87e9-bcdfa0d3aa2a)
 
+![aws2](https://github.com/user-attachments/assets/4c8e02ca-0fa4-4ec7-abfe-e31c410f6dfc)
 
 ### 💭 Reflection (STAR Technique)
 S - Situation
