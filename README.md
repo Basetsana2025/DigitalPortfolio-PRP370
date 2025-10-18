@@ -100,3 +100,185 @@ I carefully followed the tips from the module. I ensured the work experience sec
 
 R – Result
 The final CV reflects my academic achievements, skills, and practical experience clearly and professionally. I feel more confident in applying for internships or job opportunities. The process not only helped me create a high-quality CV but also improved my understanding of how to present myself effectively on paper.
+
+
+
+
+
+Digital-Portfolio-Semester-2
+BUSINESS COMMUNICATION
+Evidence
+
+<img width="1754" height="456" alt="image" src="https://github.com/user-attachments/assets/08e3ad6c-7784-4069-affb-404e0e8f324b" />
+
+• Screenshot of certificate (Business Communication)
+
+<img width="1072" height="828" alt="image" src="https://github.com/user-attachments/assets/98a350eb-ed9e-473b-a8b5-e7e7f620c733" />
+
+• Document showing completion of a communication assignment
+
+
+[DADRSystem.pptx](https://github.com/user-attachments/files/22986875/DADRSystem.pptx)
+
+Reflection (Using STAR Technique)
+
+Situation:
+
+During my Business Communication module, I was required to demonstrate professional communication skills through both written and oral tasks. This included completing a Business Communication certificate called Communication with aTeam and presenting a report on Disaster Analysis, Donations, and Recovery in South Africa.
+
+Task:
+
+My task was to research, write, and present a professional business report addressing how communication plays a vital role during disaster recovery efforts in South Africa.
+
+Action:
+
+I conducted in-depth research on various disasters that affected the country and analyzed the response communication strategies used by different organizations. I then prepared a PowerPoint presentation, ensuring that my ideas were structured clearly and that my tone was professional and appropriate for the audience( my Lecture Mr Shongwe).
+
+Result:
+
+Through this experience, I learned how to communicate effectively in professional settings. The process enhanced my writing, presentation, and analytical skills. The certificate I earned confirmed my ability to apply proper business communication techniques and present information confidently and professionally with in a team setup especially in presentation.
+
+INTERVIEW SKILLS
+Evidence Attach: 
+<img width="1764" height="692" alt="image" src="https://github.com/user-attachments/assets/66c126db-56bf-478f-ba6a-d50d2fda2ebc" />
+
+
+• Screenshot of certificate image
+<img width="975" height="752" alt="502538763-a0c798e9-8329-4284-aef8-ffc017028916" src="https://github.com/user-attachments/assets/7c09d0fa-1032-4d25-b763-1e5377be67cf" />
+
+
+• Photo of a practice interview image
+<img width="975" height="524" alt="502539038-e81c2cd9-ff25-4995-bad8-b0f8e8386316" src="https://github.com/user-attachments/assets/3d08c757-3b5e-46f8-ae66-00a60a7e14e8" />
+
+
+• Interview preparation notes and question list
+
+[Development Tips_ Capitec Hiring Experience.pdf](https://github.com/user-attachments/files/22986880/Development.Tips_.Capitec.Hiring.Experience.pdf)
+
+Development Tips_ Capitec Hiring Experience.pdf
+[Uploading Development Tips_ Capitec Hiring Experience.pdf…]()
+
+Reflection (Using STAR Technique)
+
+Situation:
+
+As part of the interview skills training, I explored the steps and strategies needed to excel in real job interviews, guided by Capitec’s assessment and preparation materials.
+
+Task:
+
+My goal was to prepare myself for professional interviews by understanding the types of assessments employers use and learning how to respond effectively.
+
+Action:
+
+I completed a step-by-step guide on how to “Rock Your Job Interview,” practiced Capitec’s pre-employment assessments including interactive numeric, deductive, and personality questionnaires, and participated in a simulated video interview to apply what I learned. I also reviewed Capitec’s development tip documents to identify ways to improve my personal presentation and responses.
+
+Result:
+
+This preparation increased my confidence and understanding of the recruitment process. I developed stronger communication skills, learned to manage interview anxiety, and became more self-aware of how to present my strengths effectively in professional interviews.
+
+MOCK INTERVIEW
+Evidence Attach:
+
+• Screenshot of mock interview feedback form
+
+<img width="1170" height="662" alt="502544923-ac092b21-0938-4fcf-bf31-634a5b13f523" src="https://github.com/user-attachments/assets/90a67785-304e-454a-8f33-b02c32514750" />
+
+• Photo from the mock interview
+<img width="1247" height="858" alt="502540834-cbba0b77-6fdf-42b2-a7de-b974db97a84a" src="https://github.com/user-attachments/assets/802d3801-6ce4-4445-a382-15a367967a57" />
+
+
+Reflection (Using STAR Technique)
+
+Situation:
+
+I took part in a mock interview session that simulated a real-world interview experience. The session involved answering 10 professional interview questions relevant to my field of study.
+
+Task:
+
+The task was to demonstrate interview readiness by answering each question clearly and professionally, applying the STAR method and showing confidence.
+
+Action:
+
+I prepared by reviewing common interview questions, reflecting on my past experiences, and practicing clear, structured responses. During the mock interview, I maintained good posture, spoke confidently, and demonstrated my understanding of workplace expectations.
+
+Result:
+
+The feedback I received was positive and highlighted my growing confidence, clear expression, and professionalism. The mock interview allowed me to identify areas for improvement and gave me practical experience in how to handle real interview situations effectively.
+
+PROFESSIONAL NETWORKING
+Evidence Attach: 
+
+<img width="1755" height="681" alt="image" src="https://github.com/user-attachments/assets/0ac93527-74a4-42bd-acde-33df1666e1c8" />
+
+• Screenshot of your LinkedIn profile or networking activity image
+
+<img width="975" height="769" alt="502541167-51faf73f-7b19-402f-9839-7fd8e49f1041" src="https://github.com/user-attachments/assets/127c51e9-7eb8-4978-8071-b587ea466614" />
+
+
+• Proof of attending a professional event 
+
+<img width="975" height="439" alt="502541265-ac0a2009-f97d-46b8-a547-3da9e2abd1ab" src="https://github.com/user-attachments/assets/9f109a90-88d9-4752-b6ed-4618fc8c53f7" />
+
+
+• Example of connecting with professionals in my field(workplace) 
+<img width="750" height="563" alt="502541353-77184f02-ce67-4f73-832d-5b61cf482e16" src="https://github.com/user-attachments/assets/5222766a-4a0f-4ed9-94f0-ec3c52763673" />
+
+
+
+
+Reflection (Using STAR Technique)
+
+Situation:
+
+To strengthen my professional presence, I created and actively developed my LinkedIn profile as part of the professional networking component of the program.
+
+Task: My task was to build an online professional identity, connect with industry professionals, and explore opportunities relevant to my field of study—Application Development.
+
+Action:
+
+I updated my LinkedIn profile to include my education, skills, and interests, growing my network to over 378 connections. I also listed my internship at Plum systems and actively engaged in professional communities. Additionally, I attended an AWS event and volunteered at AWS Community Day, where I connected with ICT professionals and learned about cloud computing innovations.
+
+Result:
+
+Through these networking activities, I gained valuable insights into the ICT industry, learned about potential career paths, and strengthened my professional relationships. I now understand the importance of maintaining an active professional presence and how networking can open doors to new learning and job opportunities.
+
+WORKPLACE ETIQUETTE
+Evidence Attach: 
+ <img width="1739" height="694" alt="image" src="https://github.com/user-attachments/assets/25fb8fb7-7794-49a6-be7e-461a3b5ff544" />
+
+• Screenshot of certificate 
+
+<img width="975" height="748" alt="502541501-a31ae3fe-a082-4eb6-84ec-24a05ea024cb" src="https://github.com/user-attachments/assets/eecd65a4-5059-4b1d-bdc1-383ca8e0f9df" />
+
+
+• visual from workplace etiquette session 
+
+<img width="975" height="438" alt="502541626-9d755567-24d8-4484-a756-f717b5afb93b" src="https://github.com/user-attachments/assets/9ade81e2-2b1c-4ea8-bab7-edbb3b61a27e" />
+
+
+• professional teamwork evidence/ attendance comment from my TeamLeader 
+
+<img width="975" height="343" alt="502541664-f2c51ca8-8d5f-41b4-a105-f5ab2f0c888d" src="https://github.com/user-attachments/assets/cf0de0c3-cef3-4ab7-8df4-3c9bb30ffecf" />
+
+
+Reflection (Using STAR Technique)
+
+Situation:
+
+During the Workplace Etiquette module, I participated in teamwork activities and professional behavior exercises that emphasized collaboration and respect in a workplace environment.
+
+Task:
+
+My responsibility was to demonstrate professionalism, teamwork, and effective communication while contributing to group projects.
+
+Action:
+
+I participated in the “Teamwork Foundations” module and applied those principles in my group project focused on researching the Co-Parent App. I maintained regular communication with my teammates, contributed research insights, and ensured that my work met our shared goals. I also received a positive comment from my team leader, noting my steady improvement and strong attention to detail.
+
+Result:
+
+I learned the importance of teamwork, accountability, and professional conduct in achieving collective success. This experience strengthened my interpersonal skills and showed me how mutual respect and effective communication contribute to a positive work environment.
+
+CONCLUSION
+
+Through these activities, I developed essential professional skills that have prepared me for the workplace. I strengthened my communication abilities, built interview confidence, expanded my professional network, and learned the importance of teamwork and etiquette. This journey has equipped me with the confidence, discipline, and professionalism needed to excel in my future career.
