@@ -181,6 +181,8 @@ Evidence Attach:
 
 • Screenshot of mock interview feedback form
 
+cv-tutorial-Basetsana2025/clideo_editor_3a569b68bc4b4309988038031fee0b55.mp4 at main · wil-it2025/cv-tutorial-Basetsana2025
+
 <img width="1170" height="662" alt="502544923-ac092b21-0938-4fcf-bf31-634a5b13f523" src="https://github.com/user-attachments/assets/90a67785-304e-454a-8f33-b02c32514750" />
 
 • Photo from the mock interview
